@@ -1,4 +1,4 @@
-### Hi there, I'm </ShadowX> - aka [DevShadowX](https://disbots.xyz/user/830819118265401354) 👋
+### Hi there, I'm **</ShadowX>** - aka [DevShadowX](https://disbots.xyz/user/830819118265401354) 👋
 
 ## I'm a Student and a Developer!!
 
